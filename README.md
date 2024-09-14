@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security 
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me - amoowskilat22@gmail.com
+- 📫 How to reach me - amoowakilat22@gmail.com
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: i am dynamic.
 
